@@ -1,1 +1,0 @@
-# Laurea_R0244_Verkkosivujen_kehittaminen_Syksy_2022
